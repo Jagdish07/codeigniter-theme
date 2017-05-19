@@ -38,3 +38,8 @@ I included 2 themes.
 -  Skeleton ( http://getskeleton.com/ )
 
 Both themes are excellent but if you want you can always drop-in your own themes.
+
+ideahunters@ideahunters.biz
+[5:41:22 PM] Jagdish Singh: D3@m0nN3WPyTh0N
+[5:44:08 PM] Jagdish Singh: http://control.insonix.com/projects/custom-packagw/issues
+[5:52:06 PM] Jagdish Singh: http://ideahunters.biz/ideas/
